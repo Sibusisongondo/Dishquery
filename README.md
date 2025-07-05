@@ -27,7 +27,7 @@ This Privacy Policy may be updated from time to time. Any changes will be posted
 
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-**Email:** [your-email@example.com]
+**Email:** [dishquery@gmail.com]
 
 ---
 
